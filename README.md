@@ -7,12 +7,10 @@ Wi, Jangan berharap kepada manusia, karena sifat manusia akan berubah-ubah setia
 
 Wi, Jika Takdir Allah menentukan kita bertemu. Kita akan bertemu dengan cara yang sangat indah. 
 
+                                             “Tidak ada perpisahan di antara kita. Di mana pun kamu berada,
+                                                           kamu akan selalu ada di hatiku.” 
 
-“Tidak ada perpisahan di antara kita. Di mana pun kamu berada, 
-kamu akan selalu ada di hatiku.” 
-
-Mahatma Gandhi
-
+                                                                 Mahatma Gandhi
 
 
 
