@@ -19,4 +19,30 @@ Wi, Jika Takdir Allah menentukan kita bertemu. Kita akan bertemu dengan cara yan
                                     
                                     
                               
-                              
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+          
+                                                                                    
+
++6289675863391
+
+                                                                                                                     
+
