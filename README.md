@@ -42,4 +42,5 @@ Wi, Jika Takdir Allah menentukan kita bertemu. Kita akan bertemu dengan cara yan
           
                                                                                     
 
-Wi, Jika kamu ingin bertanya, Kamu klik link https://bit.ly/2Xc9mx3 
+Wi, Jika kamu ingin bertanya, Kamu klik link https://bit.ly/2Xc9mx3
+
