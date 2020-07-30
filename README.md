@@ -42,7 +42,4 @@ Wi, Jika Takdir Allah menentukan kita bertemu. Kita akan bertemu dengan cara yan
           
                                                                                     
 
-+6289675863391
-
-                                                                                                                     
-
+Wi, Jika kamu ingin bertanya, Kamu klik link https://bit.ly/2Xc9mx3 
